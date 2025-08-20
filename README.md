@@ -12,6 +12,8 @@
 
 ✰ .ᐟ Fav Ships: Ichance, Doublefedora, Paycheck, Backshot/Secondchance (4skn) Fyolai, Nikochuu and Fyoya (Bsd) I'm a multishiper so I don't mind alot of other ships so INT even if the ship is not my fave!!
 
+✰ .ᐟ More stuff on Patreon for PT related things, and Carrd for whatever else
+
 ──────────────────────────────────────────────────────────────────
 
 # ***❝99% 0f Gambers quit before winning, BIG!❞***
