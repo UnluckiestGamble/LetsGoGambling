@@ -1,6 +1,6 @@
-ᯓ★ Hello! I'm Neeo/Amy, sometimes known also as Canary, Arahabaki or Nebby! Though Cosplay names are chill too (Especially Chance or Nikolai)
+ᯓ★ Hello! I'm Neeo/Amy, sometimes known also as Canary, Arahabaki or Nebby! But I don't mind being called by cosplay names (especially Chance or Nikolai)
 
-ᯓ★ He/They/She prns! But He/him is prefered!
+ᯓ★ He/They/She prns! But He/him is preferred!
 
 ──────────────────────────────────────────────────────────────────
 
