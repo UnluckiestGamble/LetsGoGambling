@@ -21,9 +21,11 @@
 
 .𖥔 ݁ ˖ I don't mind dirty jokes/flirting; just know where to draw the line, alright?
 
-.𖥔 ݁ ˖ If you have C+H in your name, I'll probably approach you to do so, especially if it says encouraged, unless I'm with Moots/Oomfs. If I'm alone and you want someone to come and cuddle you, whisper to me so you won't be alone.
+.𖥔 ݁ ˖ I LOVE CUDS!! Give me cuddles plea hehe. If you have C+H in your name, I'll probably approach you to do so, especially if it says encouraged, unless I'm with friends/moots. And if I'm alone and you want someone to come and cuddle with you, WHISPER TO ME!! ^^
 
 .𖥔 ݁ ˖ For skins, Don't copy them or post them online, thanks.
+
+.𖥔 ݁ ˖ Some fandoms I'm in and interact with in pt are Forsaken, Bungou stray dogs, Cookie run kingdom, Maymadness 2012, Life Series and Hermitcraft!!
 
 .𖥔 ݁ ˖ Fav Ships: Ichance, Doublefedora, Paycheck, Backshot/Secondchance, Noli77 (4skn) Fyolai, Nikochuu, Ranchuu/Chuuran and Fyoya (Bsd) I ALSO LOVE ELLERTRAP!! (MM12) I'm a multishipper and rarepair shipper, But I don't mind alot of other ships so PLEASEEE INT even if the ship is not one of my favs!!
 
