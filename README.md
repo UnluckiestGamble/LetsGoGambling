@@ -1,7 +1,7 @@
 # ₊✩‧₊˚౨ **❝TAKE A CHANCE WITH CHAAAANCE BABY!!❞** ৎ˚₊✩‧₊
 ˗ˏˋ 𝐀 𝐁 𝐎 𝐔 𝐓  𝐌 𝐄 ˎˊ˗
 
-ᯓ★ Hello! I'm Neeo, sometimes known by some as Amy, Canary, Arahabaki, and Nebby! I dont mind being called by cosplay names (especially Nikolai, Chance and Issac since they are main my c'links)
+ᯓ★ Hello! I'm Neeo, sometimes known by some as Amy, Canary, Arahabaki, and Nebby! I dont mind being called by cosplay names (especially Nikolai, Chance and Isaac)
 
 ᯓ★ He/They/She prns! But He/Him is preferred
 
@@ -25,7 +25,7 @@
 
 .𖥔 ݁ ˖ Some fandoms im in and actively interact with in pt are Forsaken, Bungou stray dogs, Cookie run kingdom, Maymadness 2012, Life Series and Hermitcraft!!
 
-.𖥔 ݁ ˖ I'm also a multishipper and rarepair shipper so feel free to approach for ships. but if you care my fav ships from fandoms are __Ichance__, Doublefedora, Paycheck, Backshot/Secondchance, Noli77 (Forsaken) Fyolai, Nikochuu, Ranchuu/Chuuran and Fyoya (BSD) Ellertrap, Itree and Polymadness (MM12) For mcyt I dont really ship but if you do idm regardless
+.𖥔 ݁ ˖ I'm also a multishipper and rarepair shipper so feel free to approach for ships. but if you care my fav ships from fandoms are __Ichance__, Doublefedora, Paycheck, Backshot/Secondchance, Noli77 (Forsaken) Fyolai, Nikochuu, Ranchuu/Chuuran and Fyoya (BSD) Ellertrap, Itree/Winterseason and Polymadness (MM12) For mcyt I dont really ship but if you do idm regardless
 
 .𖥔 ݁ ˖ More stuff on my Patreon about Ponytown related things and Carrd for whatever else
 
