@@ -35,7 +35,7 @@
 ᝰ.ᐟ ➜ More info on Carrd and we have a pronouns page too ,, This gets update randomly and frequently for some reason... *Updated as of 10/26/25*
 
 
-                                                                                  ❝  ...𝑰 𝒇𝒐𝒓𝒈𝒊𝒗𝒆 𝒚𝒐𝒖.  ❞
+                                                                         ❝  ...𝑰 𝒇𝒐𝒓𝒈𝒊𝒗𝒆 𝒚𝒐𝒖.  ❞
 
 
 ╰┈➤. He's literally me !! ᯓ★
