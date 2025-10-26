@@ -1,7 +1,7 @@
 <img width="900" height="600" alt="Ichance" src="https://github.com/user-attachments/assets/861aa7d0-a48c-4183-91d3-81542a9cc3a9" />
 
 
-             ❝  . . .  ❞
+         ❝  . . .  ❞
 
 
 ⤷ ;; STATUS !!゛ ˎˊ˗
@@ -17,7 +17,7 @@
 ⌗ ⤿ DNIUID/DNI = Literally what it says
 
 
-                                         ❝  𝑰'𝒎 𝒔𝒐𝒓𝒓𝒚 𝒊𝒕 𝒉𝒂𝒅 𝒕𝒐 𝒆𝒏𝒅 𝒕𝒉𝒊𝒔 𝒘𝒂𝒚. . .  ❞
+                                      ❝  𝑰'𝒎 𝒔𝒐𝒓𝒓𝒚 𝒊𝒕 𝒉𝒂𝒅 𝒕𝒐 𝒆𝒏𝒅 𝒕𝒉𝒊𝒔 𝒘𝒂𝒚. . .  ❞
 
 
 ⤷ ;; THINGS TO NOTE !!゛ ˎˊ˗
@@ -35,7 +35,7 @@
 ᝰ.ᐟ ➜ More info on Carrd and we have a pronouns page too ,, This gets update randomly and frequently for some reason... *Updated as of 10/26/25*
 
 
-                                                                                              ❝  ...𝑰 𝒇𝒐𝒓𝒈𝒊𝒗𝒆 𝒚𝒐𝒖.  ❞
+                                                                                  ❝  ...𝑰 𝒇𝒐𝒓𝒈𝒊𝒗𝒆 𝒚𝒐𝒖.  ❞
 
 
 ╰┈➤. He's literally me !! ᯓ★
