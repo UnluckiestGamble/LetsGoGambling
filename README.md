@@ -1,41 +1,39 @@
-# ₊✩‧₊˚౨ **❝TAKE A CHANCE WITH CHAAAANCE BABY!!❞** ৎ˚₊✩‧₊
-˗ˏˋ 𝐀 𝐁 𝐎 𝐔 𝐓  𝐌 𝐄 ˎˊ˗
+<img width="900" height="600" alt="Ichance" src="https://github.com/user-attachments/assets/861aa7d0-a48c-4183-91d3-81542a9cc3a9" />
 
-ᯓ★ Hello! my name Neeo, sometimes known by some as Amy, Canary, Arahabaki, and Nebby!! you can call me refer to me as whatever cosplay name I'm using rn, especially Nikolai, Chance and Isaac
 
-ᯓ★ He/They/She prns! Although He/Him is preferred <3
+             ❝  . . .  ❞
 
-ᯓ★ Im in college, so have that as you will. And for safe server ppl if my age makes you uncomfy just dont __int or block me.__ I dont care for your drama.
 
-──────────────────────────────────────────────────────────────────
+⤷ ;; STATUS !!゛ ˎˊ˗
 
-✰ .ᐟ 🟢 Actively Playing, feel free to chat or even rp (Im bad at rp but ill try my best. it also may not be lore accurate if your looking for that)
+ ⸝⸝.ᐟ ✰  🟢 Actively Playing although usually Semi-AFK ,, Free to chat or RP
 
-✰ .ᐟ 🌙 AFK and W2I is preferred or else I wont see your message
+ ⸝⸝.ᐟ ✰  🌙 AFK, Asleep or In school / Outside ,, Slow/Late response or No response but feel free to try your *luck* and whisper anyways
 
-✰ .ᐟ ⛔ Offtab, Making Skins,Busy with Irl shinanigans, Etc. W2I is preferred though please be patient as it might take some time for me to respond likely
+ ⸝⸝.ᐟ ✰  ⛔ Likely Offtab, Playing games, Busy dealing with irl shenanigans, Etc ,, W2I very much preferred though please be patient as it might take some time for me to respond likely
 
-──────────────────────────────────────────────────────────────────
 
-⤷ ゛ ˎˊ˗ 𝐸𝓍𝓉𝓇𝒶𝓈 ゛ ⸝⸝.ᐟ⋆
+                                         ❝  𝑰'𝒎 𝒔𝒐𝒓𝒓𝒚 𝒊𝒕 𝒉𝒂𝒅 𝒕𝒐 𝒆𝒏𝒅 𝒕𝒉𝒊𝒔 𝒘𝒂𝒚. . .  ❞
 
-.𖥔 ݁ ˖ I dont mind dirty jokes/flirting; just know where to draw the line, alright?
 
-.𖥔 ݁ ˖ I LOVE CUDS!! Give me cuddles please hehe... If you have C+H in your name, ill probably approach you to do so most especially if it says encouraged, And if im alone and you want someone to come and cuddle with, WHISPER ME IDM!! ^^
+⤷ ;; THINGS TO NOTE !!゛ ˎˊ˗
 
-.𖥔 ݁ ˖ Some fandoms im in and actively interact with in pt are Forsaken, Bungou stray dogs, Cookie run kingdom, Maymadness 2012, Life Series and Hermitcraft!!
+ᝰ.ᐟ ➜ I'm in college so I'm mostly ever online at night or free days ,, And if my age makes you uncomfy just don't ***int or block me***
 
-.𖥔 ݁ ˖ Im also a multishipper and rarepair shipper so feel free to approach for ships. but if you care my fav ships from fandoms are __Ichance__, Doublefedora, Paycheck, Backshot/Secondchance, Noli77 (Forsaken) __Fyolai__, __Nikochuu__, Ranchuu/Chuuran and Fyoya (BSD) __Ellertrap__, __Itree/Winterseason__ and Polymadness (MM12) For mcyt n crk I dont really ship but if you do idm regardless
+ᝰ.ᐟ ➜ I don't mind dirty jokes and flirting ,, Just know where to draw the line, alright?
 
-.𖥔 ݁ ˖ More stuff on my Patreon about Ponytown related things and Carrd for whatever else
+ᝰ.ᐟ ➜ GIVE US CUDDLES PLEASE !! LOVE CUDDLES SO MUCH ,, If you have C+H in your name be aware there's a *chance* (see what we did there?) I will probably approach you especially if it states encouraged ,, And if I'm alone and you want someone to come and cuddle with WHISPER ME IDM USUALLY !!
 
-.𖥔 ݁ ˖ I update this randomly and frequently... *Updated as of 10/08/25*
+ᝰ.ᐟ ➜ Some fandoms I'm in and interact with in ponytown are Bungou stray dogs, Forsaken, May Madness 2012, Most MYCT but specifically Life Series and whatever new smp pow creations have made !!
 
-──────────────────────────────────────────────────────────────────
+ᝰ.ᐟ ➜ I'm a multishipper, rarepair shipper and SOMETIMES I do crosshipping so feel free to approach for ships ,, My main ships in different fandoms are __Fyolai__, __Nikochuu__, Ranchuu/Chuuran and Fyoya (BSD) // __Ichance__, Doublefedora, Paycheck, Backshot/Secondchance, Noli77 (Forsaken) //  __Ellertrap__, __Winterseason/Lonelytrap__, Kirbycaleb and Polymadness (MM12) // For mcyt I don't do much shipping since I prefer the dynamics rather than shipping any of them together but I do enjoy Flowerhusbands and Jizzie
 
-# ❝ 99% of gamblers quit before they win big.❞ 
+ᝰ.ᐟ ➜ More info on Carrd and we have a pronouns page too ,, This gets update randomly and frequently for some reason... *Updated as of 10/26/25*
 
-╰┈➤. Hes literally me!! ⋆˙⟡
+
+                                                                                              ❝  ...𝑰 𝒇𝒐𝒓𝒈𝒊𝒗𝒆 𝒚𝒐𝒖.  ❞
+
+
+╰┈➤. He's literally me !! ᯓ★
 
 ![CHANCE BANNER](https://github.com/user-attachments/assets/1e63390e-b3b0-4574-8a35-dd2965aff10a)
-──────────────────────────────────────────────────────────────────
