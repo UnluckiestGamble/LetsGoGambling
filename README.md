@@ -12,6 +12,10 @@
 
  ⸝⸝.ᐟ ✰  ⛔ Likely Offtab, Playing games, Busy dealing with irl shenanigans, Etc ,, W2I very much preferred though please be patient as it might take some time for me to respond likely
 
+⌗ ⤿ DNIUF/DNIUP = If your not any of my friends, moots or in my party C+H is welcomed but I won't be replying to chats if try to talk to me
+
+⌗ ⤿ DNIUID/DNI = Literally what it says
+
 
                                          ❝  𝑰'𝒎 𝒔𝒐𝒓𝒓𝒚 𝒊𝒕 𝒉𝒂𝒅 𝒕𝒐 𝒆𝒏𝒅 𝒕𝒉𝒊𝒔 𝒘𝒂𝒚. . .  ❞
 
