@@ -40,4 +40,6 @@
 
 ╰┈➤. He's literally me !! ᯓ★
 
+ART FROM @Namdam ON TWITTER!! :3 
+
 ![CHANCE BANNER](https://github.com/user-attachments/assets/1e63390e-b3b0-4574-8a35-dd2965aff10a)
