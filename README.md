@@ -1,23 +1,23 @@
 <img width="900" height="600" alt="Ichance" src="https://github.com/user-attachments/assets/861aa7d0-a48c-4183-91d3-81542a9cc3a9" />
 
 
-         ❝  . . .  ❞
+         ❝  iTrapped. . ?  ❞
 
 
 ⤷ ;; STATUS !!゛ ˎˊ˗
 
  ⸝⸝.ᐟ ✰  🟢 Actively Playing although usually Semi-AFK ,, Free to chat or RP
 
- ⸝⸝.ᐟ ✰  🌙 AFK, Asleep or In school / Outside ,, Slow/Late response or No response but feel free to try your *luck* and whisper anyways
+ ⸝⸝.ᐟ ✰  🌙 AFK, In Bed (Likely Asleep) or In school / Outside ,, Depending on the context, expect Slow/Late responses or No response but feel free to try your *luck* and whisper anyways
 
  ⸝⸝.ᐟ ✰  ⛔ Likely Offtab, Playing games, Busy dealing with irl shenanigans, Etc ,, W2I very much preferred though please be patient as it might take some time for me to respond likely
 
-⌗ ⤿ DNIUF/DNIUP = If your not any of my friends, moots or in my party C+H is welcomed but I won't be replying to chats if try to talk to me
+⌗ ⤿ DNIUF / DNIUP = If your not any of my friends, moots or in my party C+H is still very much welcomed but I won't be replying to chats if try to talk to me
 
-⌗ ⤿ DNIUID/DNI = Literally what it says
+⌗ ⤿ DNIUID / DNI = Literally what it says. Please stop coming up to me, your not funny.
 
 
-                                      ❝  𝑰'𝒎 𝒔𝒐𝒓𝒓𝒚 𝒊𝒕 𝒉𝒂𝒅 𝒕𝒐 𝒆𝒏𝒅 𝒕𝒉𝒊𝒔 𝒘𝒂𝒚. . .  ❞
+                                      ❝  𝑰'𝒎 𝒔𝒐𝒓𝒓𝒚 𝒊𝒕 𝒉𝒂𝒅 𝒕𝒐 𝒆𝒏𝒅 𝒕𝒉𝒊𝒔 𝒘𝒂𝒚, 𝑪𝒉𝒂𝒏𝒄𝒆. . .  ❞
 
 
 ⤷ ;; THINGS TO NOTE !!゛ ˎˊ˗
@@ -30,12 +30,12 @@
 
 ᝰ.ᐟ ➜ Some fandoms I'm in and interact with in ponytown are Bungou stray dogs, Forsaken, May Madness 2012, Most MYCT but specifically Life Series and whatever new smp pow creations have made !!
 
-ᝰ.ᐟ ➜ I'm a multishipper, rarepair shipper and SOMETIMES I do crosshipping so feel free to approach for ships ,, My main ships in different fandoms are __Fyolai__, __Nikochuu__, Ranchuu/Chuuran and Fyoya (BSD) // __Ichance__, Doublefedora, Paycheck, Backshot/Secondchance, Noli77 (Forsaken) //  __Ellertrap__, __Winterseason/Lonelytrap__, Kirbycaleb and Polymadness (MM12) // For mcyt I don't do much shipping since I prefer the dynamics rather than shipping any of them together but I do enjoy Flowerhusbands and Jizzie
+ᝰ.ᐟ ➜ I'm a multishipper, rarepair shipper and SOMETIMES I do crosshipping so feel free to approach for ships, And if your interested.. My main ships from different fandoms are __Fyolai__, __Nikochuu__, Ranchuu/Chuuran and Fyoya (BSD) // __Ichance__, Doublefedora, Paycheck, Backshot/Secondchance, Noli77 (Forsaken) //  __Ellertrap__, __Winterseason/Lonelytrap__, Kirbycaleb and Polymadness (MM12) // For mcyt I don't do much shipping since I prefer the dynamics rather than shipping any of them together but I do enjoy Flowerhusbands, Jizzie and Aviscott.
 
-ᝰ.ᐟ ➜ More info on Carrd and we have a pronouns page too ,, This gets update randomly and frequently for some reason... *Updated as of 10/26/25*
+ᝰ.ᐟ ➜ More info on Carrd and we have a pronouns page too ,, This gets update randomly and frequently for some reason... *Updated as of 12/21/25*
 
 
-                                                                         ❝  ...𝑰 𝒇𝒐𝒓𝒈𝒊𝒗𝒆 𝒚𝒐𝒖.  ❞
+                                                       ❝  𝑰𝒕'𝒔 𝒐𝒌𝒂𝒚. . .𝑰 𝒇𝒐𝒓𝒈𝒊𝒗𝒆 𝒚𝒐𝒖. 𝑻𝒂𝒌𝒆 𝒄𝒂𝒓𝒆 𝒐𝒇 𝑺𝒑𝒂𝒅𝒆 𝒇𝒐𝒓 𝒎𝒆, 𝑨𝒍𝒓𝒊𝒈𝒉𝒕?  ❞
 
 
 ╰┈➤. He's literally me !! ᯓ★
