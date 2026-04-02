@@ -3,7 +3,7 @@
 <img width="1000" height="700" alt="image" src="https://github.com/user-attachments/assets/9205da16-6150-4993-9168-d30c25404985" />
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ``Art from @Zogzap on twitter``
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ``Art from @Zogzap on twitter``
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ✰  🟢 `Playing/Semi-AFK`ㅤㅤ✰  🌙 `AFK`  ㅤㅤ✰  ⛔ `Offtab/Busy`
 
