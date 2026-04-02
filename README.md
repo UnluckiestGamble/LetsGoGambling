@@ -1,11 +1,11 @@
-                        ❝ ᴘᴇᴏᴘʟᴇ ɴᴇᴇᴅ ᴛᴏ ʙᴇ ᴛᴏʟᴅ ᴛʜᴇʏ'ʀᴇ ᴡᴏʀᴛʜʏ ᴏꜰ ʙᴇɪɴɢ ᴀʟɪᴠᴇ ʙʏ ꜱᴏᴍᴇᴏɴᴇ ᴇʟꜱᴇ ᴏʀ ᴛʜᴇʏ ᴄᴀɴ'ᴛ ɢᴏ ᴏɴ ❞
+           ❝ ᴘᴇᴏᴘʟᴇ ɴᴇᴇᴅ ᴛᴏ ʙᴇ ᴛᴏʟᴅ ᴛʜᴇʏ'ʀᴇ ᴡᴏʀᴛʜʏ ᴏꜰ ʙᴇɪɴɢ ᴀʟɪᴠᴇ ʙʏ ꜱᴏᴍᴇᴏɴᴇ ᴇʟꜱᴇ ᴏʀ ᴛʜᴇʏ ᴄᴀɴ'ᴛ ɢᴏ ᴏɴ ❞
 
 <img width="1000" height="700" alt="image" src="https://github.com/user-attachments/assets/9205da16-6150-4993-9168-d30c25404985" />
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ``Art from @Zogzap on twitter``
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ``Art from @Zogzap on twitter``
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ✰  🟢 `Playing/Semi-AFK`ㅤㅤ✰  🌙 `AFK`  ㅤㅤ✰  ⛔ `Offtab/Busy`
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ✰  🟢 `Playing/Semi-AFK`ㅤㅤ✰  🌙 `AFK`  ㅤㅤ✰  ⛔ `Offtab/Busy`
 
 <details>
 <summary>𝙰𝚋𝚘𝚞𝚝 𝚖𝚎</summary>
