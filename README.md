@@ -1,9 +1,9 @@
            ❝ ᴘᴇᴏᴘʟᴇ ɴᴇᴇᴅ ᴛᴏ ʙᴇ ᴛᴏʟᴅ ᴛʜᴇʏ'ʀᴇ ᴡᴏʀᴛʜʏ ᴏꜰ ʙᴇɪɴɢ ᴀʟɪᴠᴇ ʙʏ ꜱᴏᴍᴇᴏɴᴇ ᴇʟꜱᴇ ᴏʀ ᴛʜᴇʏ ᴄᴀɴ'ᴛ ɢᴏ ᴏɴ ❞
 
-<img width="1000" height="700" alt="image" src="https://github.com/user-attachments/assets/9205da16-6150-4993-9168-d30c25404985" />
+<img width="7000" height="500" alt="image" src="https://github.com/user-attachments/assets/9205da16-6150-4993-9168-d30c25404985" />
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ``Art from @Zogzap on twitter``
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ``Art from @Zogzap on twitter``
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ✰  🟢 `Playing/Semi-AFK`ㅤㅤ✰  🌙 `AFK`  ㅤㅤ✰  ⛔ `Offtab/Busy`
 
