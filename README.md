@@ -1,6 +1,6 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ $\color{Yellow}\large{\textbf{ɴᴇᴇᴏ | ɪꜱᴀᴀᴄ | ɪᴄᴀʀᴜꜱ | ᴄᴀɴᴀʀʏㅤ𓏵ㅤʜɪᴍ / ʜɪᴍ ᴘʀᴇꜰᴇʀʀᴇᴅ}}$
 
-ㅤㅤㅤㅤㅤㅤㅤㅤ🟢 − $\color{Yellow}\large{\textbf{Playing/Semi-AFK}}$ㅤㅤ🌙 − $\color{Yellow}\large{\textbf{AFK}}$  ㅤㅤ⛔ − $\color{Yellow}\large{\textbf{Offtab/Busy}}$
+ㅤㅤㅤㅤㅤㅤㅤㅤ🟢 − $\color{Yellow}\large{\textbf{ᴘʟᴀʏɪɴɢ/ꜱᴇᴍɪ-ᴀꜰᴋ}}$ㅤㅤ🌙 − $\color{Yellow}\large{\textbf{ᴀꜰᴋ}}$  ㅤㅤ⛔ − $\color{Yellow}\large{\textbf{ᴏꜰꜰᴛᴀʙ/ʙᴜꜱʏ}}$
 
 ㅤㅤㅤㅤ $\color{Yellow}\large{\textbf{✦•······················•✦•······················•✦}}$ $\color{Yellow}\large{\textbf{✦•······················•✦•······················•✦}}$ 
 
